@@ -1,4 +1,4 @@
-How to make Grilled Sandwich
+How to make Grilled Sandwich.
 
 Step 1 Slice the veggies
 To prepare this yummy sandwich, peel and slice the onion and cucumber in the round shape. Wash the tomatoes and cut round slices of it as well.

@@ -12,4 +12,4 @@ Ingredients of Grilled Sandwich (1 Serving)
 1/2 medium cucumber
 1/2 small onion
 1 tablespoon butter
-1 wedges cheddar cheese
+1 wedges cheddar cheese.
